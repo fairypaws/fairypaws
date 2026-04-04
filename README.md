@@ -3,3 +3,5 @@ i'm noah, i'm 18, i'm a jobless bum who loves to play ponytown and roblox. i lik
 im mentally ill, and i get unhealthy attachments to fictional characters. <br>
 anybody who romanticizes or wants to normalize pedophilia, incest, or zoophilia should die. <br>
 <img src = "https://lailabug.carrd.co/assets/images/gallery02/e43c0e59.gif?v=908e9f53">
+<a href="https://dragcave.net/view/FUwoY"><img src="https://dragcave.net/image/FUwoY.gif" style="border-width:0" alt="click my baby"/></a>
+<a href="https://dragcave.net/view/LXJnZ"><img src="https://dragcave.net/image/LXJnZ.gif" style="border-width:0" alt="this one too"/></a>
