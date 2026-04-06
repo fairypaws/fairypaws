@@ -6,3 +6,6 @@ anybody who romanticizes or wants to normalize pedophilia, incest, or zoophilia 
 click my eggs <br>
 <a href="https://dragcave.net/view/FUwoY"><img src="https://dragcave.net/image/FUwoY.gif" style="border-width:0" alt="click my baby"/></a>
 <a href="https://dragcave.net/view/LXJnZ"><img src="https://dragcave.net/image/LXJnZ.gif" style="border-width:0" alt="this one too"/></a>
+<br>
+shameless advertisement so i can get levels off this LMAO <br>
+join [sprout.spot](https://braixen.sprout.spot)!!it is like noplace but with better moderation.. and there are BADGES!!! 
