@@ -12,9 +12,9 @@ i'm a tranny faggot, and i'm proud. <br>
 
 <p align = "center"> 
   <img src = "https://y2k.neocities.org/blinkiez/1518636ola29hlo3c.gif"> <img src = "https://y2k.neocities.org/blinkiez/owl.gif"> <img src = "https://y2k.neocities.org/blinkiez/tumblr_inline_pbix8g9cXs1tehlgd_500.gif"> <img src = "https://y2k.neocities.org/blinkiez/tumblr_p2gu34gTvy1wclo4ko2_250.gif"> <img src = "https://adriansblinkiecollection.neocities.org/m11.gif"> <img src = "https://adriansblinkiecollection.neocities.org/m10.gif"> <img src = "https://adriansblinkiecollection.neocities.org/n6.gif"> <img src = "https://adriansblinkiecollection.neocities.org/n5.gif"> <img src = "https://adriansblinkiecollection.neocities.org/g94.gif"> <img src = "https://adriansblinkiecollection.neocities.org/f76.gif"> <img src = "https://adriansblinkiecollection.neocities.org/f40.gif"> <img src = "https://adriansblinkiecollection.neocities.org/f38.gif"> <img src = "https://adriansblinkiecollection.neocities.org/e119.gif"> <img src = "https://adriansblinkiecollection.neocities.org/e117.gif"> <img src = "https://adriansblinkiecollection.neocities.org/g120.gif"> <img src = "https://adriansblinkiecollection.neocities.org/g78.gif"> <img src = "https://adriansblinkiecollection.neocities.org/x4.gif"> <img src = "https://adriansblinkiecollection.neocities.org/d64.gif"> <img src = "https://adriansblinkiecollection.neocities.org/d73.gif">
-</p> <br>
-<p align="center">
+
+<br> <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31oekrfjwtfd3zz5iqecp2jjxta4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31oekrfjwtfd3zz5iqecp2jjxta4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=true&bar_color=e8738a">
   </a>
 </p>
