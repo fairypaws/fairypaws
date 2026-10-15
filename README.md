@@ -19,7 +19,7 @@
   <img src = "https://adriansblinkiecollection.neocities.org/stamps/k14.png"><img src = "https://adriansblinkiecollection.neocities.org/stamps/k13.png"> <img src = "https://adriansblinkiecollection.neocities.org/stamps/e122.gif"><img src = "https://adriansblinkiecollection.neocities.org/stamps/k48.png"> <img src = "https://adriansblinkiecollection.neocities.org/stamps/d35.png"> <img src = "https://adriansblinkiecollection.neocities.org/stamps/e72.gif">
   <h5 align="center"> 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook!!!](https://fairypaws.atabook.org/)   ${\color{lightskyblue} 𖹭𖹭𖹭 }$ [@limpdeftmet](https://github.com/limpdeftmet)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook!!!](https://fairypaws.atabook.org/)   ${\color{lightskyblue} 𖹭𖹭𖹭 }$ [@limpdeftmet](https://github.com/limpdeftmet)
 
 <h5 align="center"> 
    
