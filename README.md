@@ -33,3 +33,6 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31oekrfjwtfd3zz5iqecp2jjxta4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color_cover=true&bar_color=e8738a">
   </a>
 </p>
+
+<br> 
+<img src = "https://64.media.tumblr.com/5268d754876e777f90af31e1f302ddbc/05e7f8e1d056bac5-e9/s250x400/fd52f98994b8cb9830db5cb8f5800bf053f55681.pnj">
