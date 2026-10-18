@@ -9,6 +9,10 @@
 
 <h5 align="center"> 
 <details><summary> about me ᨐฅ </summary>  18 yrs >> its/its ONLY >> yumeshipper and pokemon super fan 
+<br>
+please let me know if i am following somebody who is problematic! i rarely check profiles when i follow people back
+<br>
+i yume with eclipse (dandy's world) and sinister mark (invincible)! i don't care about doubles.
 
   <img width="150" height="100" src= "https://media1.tenor.com/m/7K80S1-vPGMAAAAC/chespin-braixen.gif" /> </summary> </details> </h5>
 
