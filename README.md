@@ -3,7 +3,7 @@
  <h5 align="center"> 
   <img width="240" src="https://i.pinimg.com/736x/7d/2b/93/7d2b93c1142ee8891a0ea83d8467e4f7.jpg" />
 <h5 align="center"> 
-<details><summary> do NOT int !! </summary> pdf, zoo, pro para, darkship, against xenogenders and neopronouns against petre and agere, against yumeshipping + people who think fiction DOESNT effect reality.  BYI i say slurs i can reclaim, im a big hawkpool shipper, and im mentally ill 
+<details><summary> do NOT int !! </summary> pedo, zoo, pro harmful para, darkship, against xenogenders and neopronouns, against petre and agere, against yumeshipping, people who think fiction DOESN'T affect reality.  BYI i say slurs i can reclaim, im a big hawkpool shipper, and im mentally ill 
 
   <img width="150" height="100" src= "https://media1.tenor.com/m/QJQV9tgkDY8AAAAC/alenoah-total-drama-island.gif" /> </summary> </details> </h5>
 
