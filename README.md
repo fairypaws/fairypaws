@@ -13,6 +13,8 @@
 please let me know if i am following somebody who is problematic! i rarely check profiles when i follow people back
 <br>
 i yume with eclipse (dandy's world) and sinister mark (invincible)! i don't care about doubles.
+<br> 
+i often clear out my friendlist! apologies if i unfriended you.. if you want a refriend, shoot me an ata or msg on strawpage!
 
   <img width="150" height="100" src= "https://media1.tenor.com/m/7K80S1-vPGMAAAAC/chespin-braixen.gif" /> </summary> </details> </h5>
 
