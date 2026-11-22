@@ -1,3 +1,7 @@
+<h5 align="center">
+<a href="https://visitorbadge.io//status?path=fairypaws"><img src="https://api.visitorbadge.io/api/daily?path=fairypaws&label=%E2%82%8A%E2%8B%86%E0%B8%85%5E._.%5E%E0%B8%85&labelColor=%23de7aa9&countColor=%2374b861&style=plastic&labelStyle=none" /></a>
+<a href="https://visitorbadge.io//status?path=fairypaws"><img src="https://api.visitorbadge.io/api/visitors?path=fairypaws&label=%20%20%E2%82%8D%5E.%20.%5E%E2%82%8E%E2%9F%86&labelColor=%2374b861&countColor=%23de7aa9&style=plastic&labelStyle=none" /></a>
+<br>
 <h5 align="center"> 
   noah / pip ⪩ ⪨ ꠹
  <h5 align="center"> 
