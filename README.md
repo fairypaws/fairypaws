@@ -7,7 +7,7 @@
  <h5 align="center"> 
   <img width="240" src="https://i.pinimg.com/736x/7d/2b/93/7d2b93c1142ee8891a0ea83d8467e4f7.jpg" />
 <h5 align="center"> 
-<details><summary> do NOT int !! </summary> pedo, zoo, pro harmful para, darkship, against xenogenders and neopronouns, against petre and agere, against yumeshipping, people who think fiction DOESN'T affect reality.  BYI i say slurs i can reclaim, im a big hawkpool shipper, im mentally ill, i have serious memory issues
+<details><summary> do NOT int !! </summary> pedo, zoo, pro harmful para, darkship, against xenogenders and neopronouns, against petre and agere, against yumeshipping, people who think fiction DOESN'T affect reality.  BYI i say slurs i can reclaim, im a big hawkpool shipper, im mentally ill, i have severe memory issues.
 
   <img width="150" height="100" src= "https://media1.tenor.com/m/QJQV9tgkDY8AAAAC/alenoah-total-drama-island.gif" /> </summary> </details> </h5>
 
@@ -16,9 +16,9 @@
 <br>
 please let me know if i am following somebody who is problematic! i rarely check profiles when i follow people back
 <br>
-i yume with eclipse (dandy's world) and sinister mark (invincible)! i don't care about doubles.
+i yume with eclipse(dandy's world)! i don't care about doubles.
 <br> 
-i often clear out my friendlist! apologies if i unfriended you.. if you want a refriend, shoot me an ata or msg on strawpage!
+i often clear out my friends list because i forget people very easily :( if i unfriend you, and you'd like to continue being friends, send me a message on my strawpage, atabook, or whisper me on ponytown if you see me online! 
 
   <img width="150" height="100" src= "https://media1.tenor.com/m/7K80S1-vPGMAAAAC/chespin-braixen.gif" /> </summary> </details> </h5>
 
